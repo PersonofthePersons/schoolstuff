@@ -1,2 +1,1 @@
-# School CompSci
-wooooo i suck at programming!
+# joe sussy crispy balls
